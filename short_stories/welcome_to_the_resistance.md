@@ -1,4 +1,4 @@
-##Welcome to the Resistance
+##"Welcome to the Resistance."
 
 > ######Prompt:
 > War breaks out, humans lose, earth is antimattered, but not before several exodus fleets escape in different directions into the galaxy.
