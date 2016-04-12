@@ -33,3 +33,4 @@ The cadets looked at Gorit with glassy eyestalks.
 Ursula slid the giant pizza onto the table, causing Gorit to groan, "Chicago crust?! Ugh." Ursula put her tentacle on her hip, "ugh, New York Style is overrated, just give it a shot. I promise it's not the same as Pizza Hut deep pan." Gorit smacked Kanye-bob's hand, "hold it buddy, what comes first?" Kanye-bob groaned and clasped his claws together against his eyestalks, "we thank you lord for giving us this food..."
 
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/38necc/oc_humanisation/)
+######[_BACK_](README.md)
