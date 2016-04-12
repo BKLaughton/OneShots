@@ -20,4 +20,4 @@ Yeshua dropped his vita-wafer as the immense gas giant surged into view. He had 
 
 ===
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/38p5l5/yeshuas_pilgrimage/)
-######[_BACK_](/Readme.md)
+######[_BACK_](/README.md)
