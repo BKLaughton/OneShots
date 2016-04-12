@@ -1,3 +1,5 @@
+##Yeshua's Pilgrimage
+
 It had been 40 standard cycles since Yeshua had assumed the sacred vows of solitude and silence, and undertaken the great pilgrimage, leaving civilisation forever in search of eden. It was a controversial journey, far from universally accepted by Christian theologists back home, but Yeshua had unwavering faith in the blessed path chosen for him. Whilst some decried it as heresy, and others as folly, the great pilgrimage was sacred tenet amongst Methuselean Christians, almost a quarter of the world. 
 
 Yeshua took a ration pack from the dwindling galley rack; over the last few decades he'd slowly watched the stack of vital nourishment erode to what it is now. He calculated he had not more than four standard cycles left. Gently, Yeshua stroked the cover of his bible as he chewed on the vita-wafer, and stared into terrible vastness of deep space. Every embossed letter, each crease in the leather jacket, Yeshua knew the book more intimately than his own self. Holding the book flat against himself, Yeshua closed his eyes, and began to read. 
@@ -16,4 +18,6 @@ Though he tried not to excite himself, or treat the passage of time any differen
 
 Yeshua dropped his vita-wafer as the immense gas giant surged into view. He had breached the very star system in which his coordinates lay. It was so populated with beautiful planets. Icy dwarfs locked in dance, majestic gas giants accompanied by an entourage of moons, and closer in, smaller rocky planets. Soaring past a raging russet gas giant with angry eye, over an awesome river of asteroids, and past a frigid world of crimson canyons, it came into view at last: a pale blue dot. Beside it, a dainty white moon. Yeshua burst into tears, weeping uncontrollably. It was beautiful. Perfect. He knew in that moment without a doubt that he had arrived at the divine coordinates; before him lay the promised land, kissed in a halo of brilliant yellow light. This was the land of God's chosen people, the land where Jesus, and Moses, King David, and the Twelve Disciples all once walked. Yeshua placed a single tentacle against the porthole, "Hallelujah."
 
+===
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/38p5l5/yeshuas_pilgrimage/)
+######[_BACK_](/Readme)
