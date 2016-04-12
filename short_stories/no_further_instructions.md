@@ -12,7 +12,7 @@ Ristinar tried some of the more recent commands, in hope of setting the automati
 
 *"BY THE POWER OF HELLFIRE, I ABJURE THEE, FOOL! YIELD, AND REVEAL THINESELF!"*
 
-Ristinar skidded to a halt, and slammed his staff into the ground, activating the circle of binding he'd deftly inscribed into a glowing rune of power. The enchanted sigil would ensnare whatsoever malevolent force was controlling the golem, penetrating planar boundaries and anchoring it in place. Ristinar exhaled, and leant against his staff, "honestly, nice effort. Easily the best attempt on my life yet, and I have some pretty formidable enemies. So, tell me, to who do I owe the honour?"
+Ristinar skidded to a halt, and slammed his staff into the ground, activating the circle of binding he'd deftly inscribed into a glowing rune of power. The enchanted sigil would ensnare whatsoever malevolent force was controlling the golem, penetrating planar boundaries and anchoring it in place. Ristinar exhaled, and leant against his staff, "honestly, nice effort. Easily the best attempt on my life yet, and I have some pretty formidable enemies. So, tell me, to whom do I owe the honour?"
 
 **"no further instructions"**
 
