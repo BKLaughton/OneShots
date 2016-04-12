@@ -15,3 +15,7 @@ The Elves chuckled at the primitive incantations of the tribes of men; hardly tr
 The Dwarves snorted at the shoddy works of man; with little regard for perfection, they hacked away at insulting approximations of dwarven steel, happy to mass manufacture an inferior product that could be replaced when it inevitably failed. They ignored the mastery of the deepborn, and were mocked for their primitiveness. But they did arm themselves.
 
 Of course, Gnomes are a rare sight in the dwindling remnants of the great woods of old these days; and the legendary songs of Elves have long fallen silent over the night skies; and few behold the masterworks of the Dwarves anymore. The foolish, superstitious, and primitive Humans had pushed back the untamed wilds, spread vast and devoted religions, and conquered the lands of the earth with immense armies. What elder folk remain, retreat to the deepest woods, the darkest mines, and furthest isles. There they speak in hushed tones: _woe unto ye who underestimates the lastborn_.
+
+===
+*[(Link to original post)](https://www.reddit.com/r/HFY/comments/2kmie7/ocfantasy_the_legend_of_the_lastborn/)*
+######[_BACK_](/README.md)
