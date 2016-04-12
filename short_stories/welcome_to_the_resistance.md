@@ -43,7 +43,7 @@ Glch'xu started chirping in despair, "please don't kill me! Please!"
 
 "-fucked, yep. We best get going," agreed the human. The other fugitives emerged upon the bridge, all speckled green and grinning. "G-get going?" Glch'xu stammered, "b-but-"
 
-"You said, bigeyes," chimed in one of the other humans, a female "you're as much a fugitive as we are, now. Or soon you will be, I figure we've got a few cycles before there's a bughunt for you. So we best get to the core before then. Oh, and we're going to make a couple of detours on the way. Welcome to the resistance!"
+"You said it, bigeyes," chimed in one of the other humans, a female "you're as much a fugitive as we are, now. Or soon you will be, I figure we've got a few cycles before there's a bughunt for you. So we best get to the core before then. Oh, and we're going to make a couple of detours on the way. Welcome to the resistance!"
 
 ===
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/370a6b/oc_quarantine/crja0k2?context=3)
