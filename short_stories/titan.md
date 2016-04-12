@@ -14,4 +14,4 @@ You shove the stick, blasting the ion thrusters and pulling your observation cra
 
 ===
 [*(Link to original post)*](https://www.reddit.com/r/Worldprompts/comments/3fv24n/when_i_met_titan_i_became_a_god_of_love/ctt5c29?context=3)
-######[_BACK_](/README.md]
+######[_BACK_](/README.md)
