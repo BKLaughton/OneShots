@@ -22,5 +22,6 @@ Ristinar's eyes widened as the golem *spoke*, then effortlessly strode across th
 
 **"no further instructions"**
 
+===
 [*(Link to original post)*](https://www.reddit.com/r/Worldprompts/comments/3fsj30/the_last_message_we_received_was_no_further/ctty6gm?context=3)
 ######[_BACK_](/README.md)
