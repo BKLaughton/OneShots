@@ -1,3 +1,5 @@
+##No Further Instructions
+
 *"QUIT! STOP! SURRENDER!"*
 
 Fire, Ice, and Acid bit into the Golem's chassis as he ineffectually strode, flailed, and tossed about the top chamber of Ristinar's tower. Ristinar was deceptively spry, defying his lengthy beared and withered age with lightning fast leaps to avoid the lumbering construct. As he darted from column to column, ducking to avoid hurtling furniture tossed at him by the rampaging artifice, Ristinar slung conjured bolts of various energies at his adversary's reinforced frame.
@@ -19,3 +21,5 @@ Ristinar skidded to a halt, and slammed his staff into the ground, activating th
 Ristinar's eyes widened as the golem *spoke*, then effortlessly strode across the shimmering barrier. In a single sweep, it plucked the staff from the Wizard's grasp and snapped it in its fist. "No, wait-"
 
 **"no further instructions"**
+[*(Link to original post)*](https://www.reddit.com/r/Worldprompts/comments/3fsj30/the_last_message_we_received_was_no_further/ctty6gm?context=3)
+######[_BACK_](/README.md)
