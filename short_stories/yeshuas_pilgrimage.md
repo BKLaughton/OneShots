@@ -1,4 +1,4 @@
-##Yeshua's Pilgrimage
+## Yeshua's Pilgrimage
 
 It had been 40 standard cycles since Yeshua had assumed the sacred vows of solitude and silence, and undertaken the great pilgrimage, leaving civilisation forever in search of eden. It was a controversial journey, far from universally accepted by Christian theologists back home, but Yeshua had unwavering faith in the blessed path chosen for him. Whilst some decried it as heresy, and others as folly, the great pilgrimage was sacred tenet amongst Methuselean Christians, almost a quarter of the world. 
 
@@ -20,4 +20,9 @@ Yeshua dropped his vita-wafer as the immense gas giant surged into view. He had 
 
 ===
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/38p5l5/yeshuas_pilgrimage/)
-######[_BACK_](/README.md)
+######[_BACK_](/../../../OneShots/)
+
+
+---
+#### [Follow B.K. Laughton:](http://bklaughton.com) 
+[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
