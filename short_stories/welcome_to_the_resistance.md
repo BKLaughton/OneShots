@@ -1,9 +1,11 @@
-##"Welcome to the Resistance."
+## "Welcome to the Resistance."
 
 > ######Prompt:
 > War breaks out, humans lose, earth is antimattered, but not before several exodus fleets escape in different directions into the galaxy.
-Humans are fugitive outlaws through no fault of their own (but because of a very reasonable law). Their very existence is illegal, but they are not without allies. In the galactic fringes and frontiers, where central authority is weakest, they are plentiful. Humans also find safe harbours in worlds that chafe against galactic authority, and those that see the unprovoked genocide against the humans for what it was.
-Still, the full power of the law is engaged in an endless manhunt, seeing humanity as a contamination of violence that has infested the galaxy. Bounty hunters collect handsome rewards for turning in humans, too.
+  
+>  Humans are fugitive outlaws through no fault of their own (but because of a very reasonable law). Their very existence is illegal, but they are not without allies. In the galactic fringes and frontiers, where central authority is weakest, they are plentiful. Humans also find safe harbours in worlds that chafe against galactic authority, and those that see the unprovoked genocide against the humans for what it was.
+  
+>  Still, the full power of the law is engaged in an endless manhunt, seeing humanity as a contamination of violence that has infested the galaxy. Bounty hunters collect handsome rewards for turning in humans, too.
 The humans are not helpless, however. Moreso than any other race in the galactic community, they possess a natural talent for war. Much of the scattered human resistance engages in piracy and guerilla warfare. Moreover, the humans have leveraged the secret to evading quarantine to slowly make contact with and build an allied network of suitable quarantined species.
 Would love to play a game in this setting.
 
@@ -47,4 +49,9 @@ Glch'xu started chirping in despair, "please don't kill me! Please!"
 
 ===
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/370a6b/oc_quarantine/crja0k2?context=3)
-######[_BACK_](/README.md)
+######[_BACK_](/../../../OneShots/)
+
+
+---
+#### [Follow B.K. Laughton:](http://bklaughton.com) 
+[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
