@@ -3,6 +3,16 @@ Here are some of my short, 'one-shot' fiction pieces. Nice bite-sized stories th
 
 ### Contents
 1. [Humanisation](http://bklaughton.com/OneShots/Humanisation.html)
+2. [Nationalism](http://bklaughton.com/OneShots/Nationalism.html)
+3. [No Further Instructions](http://bklaughton.com/OneShots/No_Further_Instructions.html)
+4. [The Legend of the Lastborn](http://bklaughton.com/OneShots/The_Legend_of_the_Lastborn)
+5. [Titan](http://bklaughton.com/OneShots/Titan.html)
+6. [Welcome To The Resistance](http://bklaughton.com/OneShots/Welcome_To_The_Resistance.html)
+7. [Yeshua's Pilgrimage](http://bklaughton.com/OneShots/Yeshuas_Pilgrimage.html)
+
+
+### Synopsis
+1. [Humanisation](http://bklaughton.com/OneShots/Humanisation.html)
 
   _So this was a submission to one of my favourite fiction communities on reddit.com, /r/HFY. HFY stands for 'Humanity Fuck Yeah,' and as the name suggests, it's a place for fiction that somehow highlights how humanity is awesome (or terrifying). This piece was an attempt to subvert the criteria of the sub, whilst remaining true to its spirit._
 2. [Nationalism](http://bklaughton.com/OneShots/Nationalism.html)
