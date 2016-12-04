@@ -18,7 +18,7 @@ Here are some of my short, 'one-shot' fiction pieces. Nice bite-sized stories th
   
   [Nationalism](http://bklaughton.com/OneShots/Nationalism.html)
 
-  _Another submission to HFY, and annother tilt at the idea of 'cultural victory.' This story actually includes a link to the song that inspired. Cheating, I know, but something-something-boundary-pushing-multimedia-fiction. Oh yeah, no descriptive text in this one either–purely dialogue. _
+  _Another submission to HFY, and annother tilt at the idea of 'cultural victory.' This story actually includes a link to the song that inspired. Cheating, I know, but something-something-boundary-pushing-multimedia-fiction. Oh yeah, no descriptive text in this one either–purely dialogue._
   
   [No Further Instructions](http://bklaughton.com/OneShots/No_Further_Instructions.html)
 
