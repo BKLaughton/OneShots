@@ -1,4 +1,4 @@
-##The Legend of the Lastborn
+## The Legend of the Lastborn
 
 For 100,000 years, the wee folk held mastery over the wilds. Gently, they liaised with beast and plant to maintain the balance of nature, so that all might be blessed with her bounties. None questioned the wisdom of the feyborn Gnomish druids. 
 
@@ -18,4 +18,9 @@ Of course, Gnomes are a rare sight in the dwindling remnants of the great woods 
 
 ===
 *[(Link to original post)](https://www.reddit.com/r/HFY/comments/2kmie7/ocfantasy_the_legend_of_the_lastborn/)*
-######[_BACK_](/README.md)
+######[_BACK_](/../../../OneShots/)
+
+
+---
+#### [Follow B.K. Laughton:](http://bklaughton.com) 
+[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
