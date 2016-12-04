@@ -14,4 +14,9 @@ You shove the stick, blasting the ion thrusters and pulling your observation cra
 
 ===
 [*(Link to original post)*](https://www.reddit.com/r/Worldprompts/comments/3fv24n/when_i_met_titan_i_became_a_god_of_love/ctt5c29?context=3)
-######[_BACK_](/README.md)
+######[_BACK_](/../../../OneShots/)
+
+
+---
+#### [Follow B.K. Laughton:](http://bklaughton.com) 
+[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
