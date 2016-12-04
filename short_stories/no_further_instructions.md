@@ -1,4 +1,4 @@
-##No Further Instructions
+## No Further Instructions
 
 *"QUIT! STOP! SURRENDER!"*
 
@@ -24,4 +24,9 @@ Ristinar's eyes widened as the golem *spoke*, then effortlessly strode across th
 
 ===
 [*(Link to original post)*](https://www.reddit.com/r/Worldprompts/comments/3fsj30/the_last_message_we_received_was_no_further/ctty6gm?context=3)
-######[_BACK_](/README.md)
+######[_BACK_](/../../../OneShots/)
+
+
+---
+#### [Follow B.K. Laughton:](http://bklaughton.com) 
+[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
