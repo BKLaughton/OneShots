@@ -97,8 +97,9 @@
 *"...tell them the Trirpzidian Revolution has begun."*
 
 ===
+
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/3909jg/oc_nationalism/)
-######[_BACK_](/../../../OneShots/)
+###### [_BACK TO CONTENTS_](/../../../OneShots/)
 
 
 ---
