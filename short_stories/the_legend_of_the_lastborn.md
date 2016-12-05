@@ -17,8 +17,9 @@ The Dwarves snorted at the shoddy works of man; with little regard for perfectio
 Of course, Gnomes are a rare sight in the dwindling remnants of the great woods of old these days; and the legendary songs of Elves have long fallen silent over the night skies; and few behold the masterworks of the Dwarves anymore. The foolish, superstitious, and primitive Humans had pushed back the untamed wilds, spread vast and devoted religions, and conquered the lands of the earth with immense armies. What elder folk remain, retreat to the deepest woods, the darkest mines, and furthest isles. There they speak in hushed tones: _woe unto ye who underestimates the lastborn_.
 
 ===
+
 *[(Link to original post)](https://www.reddit.com/r/HFY/comments/2kmie7/ocfantasy_the_legend_of_the_lastborn/)*
-######[_BACK_](/../../../OneShots/)
+###### [_BACK TO CONTENTS_](/../../../OneShots/)
 
 
 ---
