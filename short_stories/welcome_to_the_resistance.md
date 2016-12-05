@@ -1,6 +1,6 @@
 ## "Welcome to the Resistance."
 
-> ######Prompt:
+> ###### Prompt:
 > War breaks out, humans lose, earth is antimattered, but not before several exodus fleets escape in different directions into the galaxy.
   
 >  Humans are fugitive outlaws through no fault of their own (but because of a very reasonable law). Their very existence is illegal, but they are not without allies. In the galactic fringes and frontiers, where central authority is weakest, they are plentiful. Humans also find safe harbours in worlds that chafe against galactic authority, and those that see the unprovoked genocide against the humans for what it was.
@@ -48,8 +48,9 @@ Glch'xu started chirping in despair, "please don't kill me! Please!"
 "You said it, bigeyes," chimed in one of the other humans, a female "you're as much a fugitive as we are, now. Or soon you will be, I figure we've got a few cycles before there's a bughunt for you. So we best get to the core before then. Oh, and we're going to make a couple of detours on the way. Welcome to the resistance!"
 
 ===
+
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/370a6b/oc_quarantine/crja0k2?context=3)
-######[_BACK_](/../../../OneShots/)
+###### [_BACK TO CONTENTS_](/../../../OneShots/)
 
 
 ---
