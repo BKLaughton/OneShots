@@ -19,8 +19,9 @@ Though he tried not to excite himself, or treat the passage of time any differen
 Yeshua dropped his vita-wafer as the immense gas giant surged into view. He had breached the very star system in which his coordinates lay. It was so populated with beautiful planets. Icy dwarfs locked in dance, majestic gas giants accompanied by an entourage of moons, and closer in, smaller rocky planets. Soaring past a raging russet gas giant with angry eye, over an awesome river of asteroids, and past a frigid world of crimson canyons, it came into view at last: a pale blue dot. Beside it, a dainty white moon. Yeshua burst into tears, weeping uncontrollably. It was beautiful. Perfect. He knew in that moment without a doubt that he had arrived at the divine coordinates; before him lay the promised land, kissed in a halo of brilliant yellow light. This was the land of God's chosen people, the land where Jesus, and Moses, King David, and the Twelve Disciples all once walked. Yeshua placed a single tentacle against the porthole, "Hallelujah."
 
 ===
+
 [*(Link to original post)*](https://www.reddit.com/r/HFY/comments/38p5l5/yeshuas_pilgrimage/)
-######[_BACK_](/../../../OneShots/)
+###### [_BACK TO CONTENTS_](/../../../OneShots/)
 
 
 ---
