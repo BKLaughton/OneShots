@@ -13,8 +13,9 @@ Hands darting back to the keyboard, you check Earth central time and crunch the 
 You shove the stick, blasting the ion thrusters and pulling your observation craft off-course and outward; a cacophony of beeps and flashes protest from your module, most likely soon to be joined by a pissy space-x 'consultant'. You power the lot down, putting the system into hibernation, except for the entertainment console; it's going to be a long month until you get there, you might not make it back, and if you do, you might not have a job - what a dinner party story, though, 'that time I stole a $400 million dollar spacecraft, visited an unexplored sector of the solar system, finally beat Dark Souls IV, and possibly rescued a moon-full of European scientists.' 
 
 ===
+
 [*(Link to original post)*](https://www.reddit.com/r/Worldprompts/comments/3fv24n/when_i_met_titan_i_became_a_god_of_love/ctt5c29?context=3)
-######[_BACK_](/../../../OneShots/)
+###### [_BACK TO CONTENTS_](/../../../OneShots/)
 
 
 ---
