@@ -5,10 +5,11 @@ Here are some of my short, 'one-shot' fiction pieces. Nice bite-sized stories th
 1. [Humanisation](http://bklaughton.com/OneShots/short_stories/humanisation.html)
 2. [Nationalism](http://bklaughton.com/OneShots/short_stories/nationalism.html)
 3. [No Further Instructions](http://bklaughton.com/OneShots/short_stories/no_further_instructions.html)
-4. [The Legend of the Lastborn](http://bklaughton.com/OneShots/short_stories/the_legend_of_the_lastborn)
+4. [The Legend of the Lastborn](http://bklaughton.com/OneShots/short_stories/the_legend_of_the_lastborn.html)
 5. [Titan](http://bklaughton.com/OneShots/short_stories/titan.html)
 6. [Welcome To The Resistance](http://bklaughton.com/OneShots/short_stories/welcome_to_the_resistance.html)
 7. [Yeshua's Pilgrimage](http://bklaughton.com/OneShots/short_stories/yeshuas_pilgrimage.html)
+8. [Breaking News](http://bklaughton.com/OneShots/short_stories/breaking_news.html)
 
 
 ### Summary
@@ -39,6 +40,10 @@ Here are some of my short, 'one-shot' fiction pieces. Nice bite-sized stories th
   [Yeshua's Pilgrimage](http://bklaughton.com/OneShots/short_stories/yeshuas_pilgrimage.html)
 
   _Since discovering that I like comedy writing, and that others like it, I guess I started doubting my ability to write 'serious' genre pap. That prompted me to submit this piece to /r/HFY, where I also tried to play with pacing, and alternating between two differently tensed plot-threads. I was pretty happy with it, but it wasn't that well received either. On the one hand, it is slow and religiously themed, and therefore not really accessible (especially on reddit). On the other hand, my comedy writing is probably stronger, or at least more natural to me; maybe I ought to stick with it._
+  
+  [Breaking News](http://bklaughton.com/OneShots/short_stories/breaking_news.html)
+  
+  _This is sort of a prequel to [Welcome To The Resistance](http://bklaughton.com/OneShots/short_stories/welcome_to_the_resistance.html), or at least could be one. It's written in the style of a journalistic article detailing a human terror attack on occupied earth, from a 'Trans-Galactic Union' perspective hostile to the humans they've aparrently conquered. Conceptually, I guess I'm playing with writing sympathetic characters unsympathetically, to give readers the feeling of defying the narrator._
 
 
 ---
