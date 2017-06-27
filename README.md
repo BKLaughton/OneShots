@@ -46,6 +46,3 @@ Here are some of my short, 'one-shot' fiction pieces. Nice bite-sized stories th
   _This is sort of a prequel to [Welcome To The Resistance](http://bklaughton.com/OneShots/short_stories/welcome_to_the_resistance.html), or at least could be one. It's written in the style of a journalistic article detailing a human terror attack on occupied earth, from a 'Trans-Galactic Union' perspective hostile to the humans they've aparrently conquered. Conceptually, I guess I'm playing with writing sympathetic characters unsympathetically, to give readers the feeling of defying the narrator._
 
 
----
-#### [Follow B.K. Laughton:](http://bklaughton.com) 
-[Instagram](http://instagram.com/B.K.Laughton) | [Twitter](http://twitter.com/bklaughton) | [Facebook](https://www.facebook.com/BK-Laughton-607374252750161/) | [Reddit](http://reddit.com/r/ArchDuke)
